@@ -1,1 +1,1 @@
-# pelit.com
+[Pelit.com](https://www.pelit.com) is a comprehensive Finnish online gambling guide created by gaming enthusiasts. Established in 2008, the platform offers expert, unbiased reviews of online casinos, slot machines, and table games. The editorial team tests every listed casino with real money to evaluate game selection, withdrawal speeds, and customer support. Dedicated to safe and responsible gambling, Pelit.com exclusively recommends licensed, secure, and tax-free online casinos tailored for Finnish players.
